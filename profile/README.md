@@ -1,6 +1,6 @@
 ## Yale Department of Physics Postdoctoral Advisory Committee (PDAC)
 
-Excerpt from the [Yale Departemnt of Phsyics Website PDAC page](https://physics.yale.edu/about/postdoctoral-advisory-committee)
+Excerpt from the [Yale Department of Phsyics Website PDAC page](https://physics.yale.edu/about/postdoctoral-advisory-committee)
 
 
 >
